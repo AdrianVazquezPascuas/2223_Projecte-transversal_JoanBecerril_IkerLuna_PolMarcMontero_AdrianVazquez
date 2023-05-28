@@ -1,1 +1,0 @@
-# 2223_Projecte-transversal_JoanBecerril_IkerLuna_PolMarcMontero_AdrianVazquez
